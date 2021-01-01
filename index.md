@@ -1,0 +1,1 @@
+Welcome to 39mod! We ask mod creators if they would like a mod they created to be featured like 39mod.github.io/(Mod Name) and credits will be always given. The mod creators might feature the link in their **post** in *discord.gg/projectdiva*.
